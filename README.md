@@ -1,0 +1,1 @@
+# Imagens-webp-2.0
